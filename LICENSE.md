@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new Sniper for sandwich attack bot | liquidity-pool-analysis & degen-coin-scanning, the #1 sandwich attack bot. Includes liquidity-pool-analysis and
 
 
 
